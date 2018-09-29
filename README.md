@@ -1,0 +1,2 @@
+# privacypolicy
+KTUweb Privacy Policy
